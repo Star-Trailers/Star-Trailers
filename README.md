@@ -1,15 +1,15 @@
   <div class="container">
-  <img src="https://64.media.tumblr.com/0fb7b2765c9dd5ef01186aee147f3849/0fbcea4a1ab13d96-d6/s1280x1920/7dffc3ce2d54acae5c5ee094ddfb20e75ce153f6.pnj"   alt="Drawing of ITrapped MayMadness / Forsaken looking over at Mafioso Dream Game / Forsaken in the foreground with Chance Forsaken tied to a chair in the background " 
-     Width=250
-  Height=355
-  <p>art belongs 2 sunipetto </p>
+  <img src="https://pbs.twimg.com/media/HDc1K0EXQAEZpVq?format=jpg&name=large"   alt="Drawing of ITrapped MayMadness / Forsaken looking over at Mafioso Dream Game / Forsaken in the foreground with Chance Forsaken tied to a chair in the background " 
+     Width=470
+  Height=300
+  <p>art belongs to inu11u on twt </p>
 </div>
 
 
 
 ﹙♰﹚**Casper** , ~~Ren~~ ☆
 
-₊ x __they/he/void__ ⸝ ⸝ ***17**y/o*. . . .
+₊ x __they/he/void__ ⸝ ⸝ ***18**y/o*. . . .
 
 ╰ <img
   class="container"
@@ -22,6 +22,6 @@ src="https://64.media.tumblr.com/42107434008285aae4d519676611f50f/8825fda4dfa139
 
 \``⟡`` Dni. . . . *non-trauma gen, -14* 
 
-``" Bow down before the one you serve,``
+``" Only you can fool yourself now, (Oh-oh)``
       
-``   You're going to get what you deserve. "``
+``   You will die without it somehow. "``
