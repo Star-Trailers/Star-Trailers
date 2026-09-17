@@ -7,7 +7,7 @@
 
 
 
-﹙♰﹚**Casper** , ~~Ren~~ ☆
+﹙♰﹚**Casper** , ~~Ren~~ ☆ . . \`*6w5* `
 
 ₊ x __they/he/void__ ⸝ ⸝ ***18**y/o*. . . .
 
