@@ -22,6 +22,6 @@ src="https://64.media.tumblr.com/42107434008285aae4d519676611f50f/8825fda4dfa139
 
 \``⟡`` Dni. . . . *non-trauma gen, -14* 
 
-``" Only you can fool yourself now, (Oh-oh)``
+``" Blinding shining star ``
       
-``   You will die without it somehow. "``
+``   You won't see so far "``
