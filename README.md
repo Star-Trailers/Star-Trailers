@@ -22,6 +22,12 @@ src="https://64.media.tumblr.com/42107434008285aae4d519676611f50f/8825fda4dfa139
 
 \``⟡`` Dni. . . . *non-trauma gen, -14* 
 
-``" Blinding shining star ``
+``" I know it's mad, but if I go to hell (I know it's mad)``
+
+``Will you come with me or just leave?``
+
+x
       
-``   You won't see so far "``
+``   I know it's mad, but if the world were ending (I know it's mad)``
+
+``Would you kiss me or just leave me? "``
