@@ -1,10 +1,9 @@
   <div class="container">
-  <img src="https://pbs.twimg.com/media/HDc1K0EXQAEZpVq?format=jpg&name=large"   alt="Drawing of ITrapped MayMadness / Forsaken looking over at Mafioso Dream Game / Forsaken in the foreground with Chance Forsaken tied to a chair in the background " 
-     Width=470
+  <img src="https://pbs.twimg.com/media/GyainwEXEAAinxT?format=jpg&name=medium"   alt="Drawing of ITrapped MayMadness / Forsaken with a drink in his hand and a rotary telepone under his ear, waiting for a phonecall " 
+     Width=490
   Height=300
-  <p>art belongs to inu11u on twt </p>
-</div>
-
+    </p>
+  </div>
 
 
 ﹙♰﹚**Casper** , ~~Ren~~ ☆ . . \`*6w5* `
@@ -18,16 +17,20 @@ src="https://64.media.tumblr.com/cc1447e446f2356d413e90c913293ccd/e4a0894ad9ef7a
  <img
   class="container"
 src="https://64.media.tumblr.com/42107434008285aae4d519676611f50f/8825fda4dfa139cf-b6/s1280x1920/202ed2a31dd30a4dba74383fc7a79c6d4d0a79b2.pnj"
-  alt="Demiboy flag in the shape of a star with rounded corners" Height=25 Width=25 />  + -15 dnf ⊹ DID SYS ⸝⸝ AUTISTIC
+  alt="Demiboy flag in the shape of a star with rounded corners" Height=25 Width=25 />  + -15 dnf ⊹ DYSTHYMIA ⸝⸝ AUTISTIC
 
-\``⟡`` Dni. . . . *non-trauma gen, -14* 
+\``⟡`` Dni. . . . *non-trauma gen, -14 (14 & under)* 
 
-``" I know it's mad, but if I go to hell (I know it's mad)``
+♰
 
-``Will you come with me or just leave?``
+``" Am I a fool to picture my own funeral as a real gala affair?``
+
+``Everybody's there, everybody cares about me.``
 
 x
       
-``   I know it's mad, but if the world were ending (I know it's mad)``
+``   Am I a wretch to fantasize about my death like it was``
 
-``Would you kiss me or just leave me? "``
+``Some big event everybody laments, ``
+
+``Where everybody says "what a life he led"?"``
